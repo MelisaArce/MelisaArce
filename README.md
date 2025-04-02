@@ -30,7 +30,7 @@ Hoy, me encuentro lista para aportar mis habilidades recién adquiridas y mi pas
 ## Contacto
 
 - *melisaamelia.arce@gmail.com*
-- *https://www.linkedin.com/in/melisa-arce-176978216/*
+- *https://www.linkedin.com/in/melisa-arce-data/*
 
 ¡Gracias por visitar mi perfil! Espero que encuentres algo interesante en mis proyectos. Si tienes alguna pregunta o sugerencia, no dudes en contactarme.
 
